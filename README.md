@@ -1,4 +1,5 @@
 # -
+免费小火箭订阅地址
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
 低速稳定地址免费（一次订阅永久可用）
