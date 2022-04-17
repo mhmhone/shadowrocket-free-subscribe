@@ -1,4 +1,4 @@
-# -
+# 盲盒盲盒one
 免费小火箭订阅地址
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
@@ -7,4 +7,4 @@
 高速4K地址关注群周期性发布
 福利节点仅供大家学习使用，请注意言论，文明交流！
 
-敬请关注：https://www.mhmh1.top/art/50306.html
+盲盒盲盒one发布地址：https://www.mhmh1.top/art/50306.html
