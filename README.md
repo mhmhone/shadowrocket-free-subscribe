@@ -1,5 +1,5 @@
 # 盲盒盲盒one
-免费小火箭订阅地址
+2022年4月免费小火箭订阅地址
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
