@@ -9,4 +9,4 @@
 
 点击：[盲盒盲盒one订阅发布地址](https://www.mhmh1.top/art/50306.html)
 
-也可关注官方公告板：https://www.mhmh1.top/arttype/gonggao.html
+更多请关注官方公告板：https://www.mhmh1.top/arttype/gonggao.html
