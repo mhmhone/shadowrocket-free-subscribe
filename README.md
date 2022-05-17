@@ -1,5 +1,5 @@
-# 盲盒盲盒one
-2022年4月免费小火箭订阅地址
+# Shadowrocket
+2022年5月免费4k小火箭订阅地址
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
@@ -7,6 +7,7 @@
 高速4K地址关注群周期性发布
 福利节点仅供大家学习使用，请注意言论，文明交流！
 
-点击：[盲盒盲盒one订阅发布地址](https://www.mhmh1.top/art/50306.html)
-
-更多请关注官方公告板：https://www.mhmh1.top/arttype/gonggao.html
+Shadowrocket电报频道：https://t.me/ShadowrocketChina
+Shadowrocket电报用户群：https://t.me/ShadowrocketGroup
+点击：[订阅发布地址](https://bit.ly/3kQRvHC)
+友情链接：盲盒盲盒one福利板块：https://bit.ly/3kQRvHC
