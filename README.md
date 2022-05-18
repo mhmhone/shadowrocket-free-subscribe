@@ -11,5 +11,5 @@ Shadowrocket电报频道：https://t.me/ShadowrocketChina
 
 Shadowrocket电报用户群：https://t.me/ShadowrocketGroup
 
-盲盒盲盒one福利板块 点击：[订阅发布地址](https://bit.ly/3kQRvHC)
+盲盒盲盒one 福利板块 点击：[订阅发布地址](https://bit.ly/3kQRvHC)
 
