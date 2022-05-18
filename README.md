@@ -1,5 +1,5 @@
 # Shadowrocket
-2022年5月免费4k小火箭订阅地址
+2022年5月18日更新 免费4k小火箭订阅地址
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
