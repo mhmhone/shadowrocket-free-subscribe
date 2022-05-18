@@ -1,5 +1,5 @@
 # Shadowrocket
-2022年5月18日更新 免费4k小火箭订阅地址
+2022年5月18日更新 免费 翻墙 4k 小火箭 订阅地址
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
@@ -11,6 +11,5 @@ Shadowrocket电报频道：https://t.me/ShadowrocketChina
 
 Shadowrocket电报用户群：https://t.me/ShadowrocketGroup
 
-点击：[订阅发布地址](https://bit.ly/3kQRvHC)
+盲盒盲盒one福利板块 点击：[订阅发布地址](https://bit.ly/3kQRvHC)
 
-友情链接：盲盒盲盒one福利板块：https://bit.ly/3kQRvHC
