@@ -1,5 +1,5 @@
 # Shadowrocket
-2022年5月18日更新 免费 翻墙 4k 小火箭 订阅地址
+2022年5月23日更新 免费 翻墙 4k 小火箭 订阅地址
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
