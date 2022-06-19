@@ -1,0 +1,15 @@
+每日梦歌都会在这个视频下方的下载链接更新，直到最新的视频播出为止
+
+大家可每日都来到这个视频下方进行下载，每日的节点我都会排上日期
+
+Clash显示不可用节点，在V2ray内是可以正常使用的！具体的问题可能是因为Clash内核的问题！
+
+如果Clash用户看见很多节点失效不可用，建议换V2ray或者winxray进行使用！
+
+目前就Clash而言给我的使用感受越来越差！
+
+建议今后使用白嫖节点订阅的小伙伴们使用V2ray和winxray或者Qv2ray
+
+V2rayN教程：https://www.youtube.com/watch?v=dFzD94CkQ3s
+
+Qv2ray教程：https://www.youtube.com/watch?v=5UmtuzkEcBs
