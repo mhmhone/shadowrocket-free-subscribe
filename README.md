@@ -1,5 +1,5 @@
 # Shadowrocket
-2022年6月19日更新 免费 节点 机场 翻墙 4k 小火箭 订阅地址 
+2022年7月17日更新 免费 节点 机场 翻墙 4k 小火箭 订阅地址 
 
 支持IOS shadowrocket,v2rayN,clash for windows等等客户端
 
